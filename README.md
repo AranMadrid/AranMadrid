@@ -1,4 +1,4 @@
-### ¡Hola, soy Arantza! 🚀🎪👽🦄
+### ¡Hola, soy Arantza! 🔥🚀⚡🎪👽🦄
 
 💻 Desarrolladora de Aplicaciones Web, especialista en Ciberseguridad y con la energía a tope cursando el Bootcamp de Inteligencia Artificial. ¡Bienvenida/o a mi perfil! 
 
